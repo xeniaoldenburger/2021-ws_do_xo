@@ -9,3 +9,7 @@ Wait and see...
 More work is coming up 
 its gonna be hard 
 IT is not my thing
+
+
+I have an fantastic idea
+Whatever
